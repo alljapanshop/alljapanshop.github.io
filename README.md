@@ -1,0 +1,1 @@
+# alljapanshop.github.io
